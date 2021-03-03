@@ -1,2 +1,2 @@
-# hello-world
+I am 33 years of age! I enjoy hiking and outdoor adventures! I have always loved listening to classical  music. I believe that classical music allows your brain and soul to grow without leaving people brain washed. Music is basically my life!!! Its pretty much the only thing I have been able to enjoy without having it rudely taken or stolen from me. Music have honestly saved me from taking my own life several times. And will probably save me from myself in the future. # hello-world
 My very 1st repository 😁🤗😎😘
